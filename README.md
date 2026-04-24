@@ -124,6 +124,5 @@ Banking
 
 ---
 
-work to the Lord, and your plans will be established." – Proverbs 16:3  
 
 ---
